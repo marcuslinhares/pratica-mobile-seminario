@@ -1,0 +1,1 @@
+# pratica-mobile-seminario
